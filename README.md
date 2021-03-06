@@ -2,7 +2,7 @@
 - 😎I'm @Dhilipkumarselvaraj
 - 👨‍💻A tech savvy and a passionate Software Engineer
 - 🌱I'm on track for learning more about design patterns, systems Design, and Cloud Architecture.
-- 👉Process Driven Engineer 👉Self Motivated Team 👉Player 👉Trusted Advisor 👉Enthusiastic Leader
+- 👉Process Driven Engineer 👉Self Motivated Team Player 👉Trusted Advisor 👉Enthusiastic Leader
 <br>
 <br>
 
